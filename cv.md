@@ -37,7 +37,7 @@
 ##### Education: School of Business of BSU 2015. 
 ###### Speciality: Computer Science 
 ##### English: Intermediate
-#### Summary: Creative, flexible
+##### Summary: Creative, flexible and open-minded person
 
 
 
